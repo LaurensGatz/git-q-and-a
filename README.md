@@ -16,3 +16,9 @@ Wat is uw geboortejaar?
 Whats your favorite videogame?
 
 - Resident Evil 2, Far Cry 3, SOMA.
+
+Hoeveel zussen/broers heb jij?
+ - 4
+
+Wat eet je héél graag?
+
