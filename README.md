@@ -19,6 +19,7 @@ Whats your favorite videogame?
 
 Hoeveel zussen/broers heb jij?
  - 4
-
+- 1
 Wat eet je héél graag?
 
+- Italiaans
